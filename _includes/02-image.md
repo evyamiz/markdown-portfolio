@@ -1,1 +1,1 @@
-![Image of Borat "Very Nice"](https://www.google.com/imgres?imgurl=https%3A%2F%2Fi.pinimg.com%2Foriginals%2F45%2F4a%2F26%2F454a264bcc9aba3ee65b5b6c0b56e5c2.jpg&imgrefurl=https%3A%2F%2Fwww.pinterest.com%2Fpin%2F497929302558392329%2F&tbnid=Ja_819fnz1TAyM&vet=12ahUKEwjzmPT82ofyAhURNRoKHQp2CcAQMygGegUIARC8AQ..i&docid=MCMvTI0fMwGgcM&w=750&h=1000&q=borat%20it%27s%20nice&ved=2ahUKEwjzmPT82ofyAhURNRoKHQp2CcAQMygGegUIARC8AQ)
+![Image of Borat "Very Nice"](https://memegenerator.net/img/instances/67170832.jpg)
