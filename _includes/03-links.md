@@ -1,1 +1,1 @@
-[YNET](https://www.ynet.co.il/)
+[text](https://example.com)
